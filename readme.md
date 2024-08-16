@@ -33,7 +33,7 @@ Verkefni sett fyrir í fyrirlestri mánudaginn 19. ágúst 2024.
 
 ## Skil
 
-Skila skal í Canvas, seinasta lagi fyrir lok dags þriðjudaginn 29. ágúst 2024.
+Skila skal í Canvas, seinasta lagi fyrir lok dags fimmtudaginn 29. ágúst 2024.
 
 Skilaboð skulu innihalda:
 
